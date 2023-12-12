@@ -1,2 +1,0 @@
-# siddhimarketreserach
-Global Market Research
